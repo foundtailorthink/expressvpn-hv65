@@ -1,10 +1,10 @@
-سرعة عالية ExpressVPN عميل | دعم OpenVPN + تبديل الخادم هو أفضل ExpressVPN عميل مع دعم OpenVPN و تبديل الخادم. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foundtailorthink.github.io/expressvpn-hv65/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
